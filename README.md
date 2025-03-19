@@ -1,0 +1,1 @@
+Uzbekiston viloytlar va tegishli tumanlar
