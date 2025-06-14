@@ -1,1 +1,1 @@
-Uzbekiston viloytlar va tegishli tumanlar
+Uzbekistondagi viloyatlar va tegishli tumanlar
